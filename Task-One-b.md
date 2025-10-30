@@ -15,3 +15,8 @@ A breathtaking view of the **Himalayan mountains** at sunrise.
 
 A quiet forest path in Japan, filled with *peaceful* morning light.
 
+![alt text]( https://i.pinimg.com/736x/c3/53/8d/c3538d7ef943e6715e07f841b3525e36.jpg)
+
+Watching the wave crash under a **brilliant** orange sunset.
+
+# 🌺 Thank You for Viewing My Gallery
