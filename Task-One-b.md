@@ -20,3 +20,8 @@ A quiet forest path in Japan, filled with *peaceful* morning light.
 Watching the wave crash under a **brilliant** orange sunset.
 
 # 🌺 Thank You for Viewing My Gallery
+
+ Click the link below to follow more of my adventures.
+ 
+ 
+  [Follow My Nature Adventures](https://www.nationalgeographic.com/photography)
